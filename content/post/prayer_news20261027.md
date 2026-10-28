@@ -15,7 +15,7 @@ One of the events during this conference is a men's breakfast. The missionary me
 
 My gasoline brush cutter is what came to mind when I received the request. In Japan, it's a tool of necessity due to the hot, humid summers and the resulting encroaching jungle for those living outside of the concrete jungles of Japan. It is also a tool that I used a lot during my time working for a small forestry company before we left Japan to begin pre-field with ABWE. I believe the Lord has used my non-rocket-science skill of using a brush cutter - I am actually certified in Japan to operate one - to open more than just forest floors but to also open doors of opportunity with people to proclaim the gospel.
 
-The following video that I made for Men's Breakfast has scenes from my last Job in Japan. While watching it I was reminded of a question I was asked while working alongside my friend and coworker _S_ at one of the clear cuts we prepared and replanted. 
+The following video that I made for Men's Breakfast has scenes from my last job in Japan. While watching it I was reminded of a question I was asked while working alongside my friend and coworker _S_ at one of the clear cuts we prepared and replanted. 
 
 <div style="padding:56.25% 0 0 0;position:relative;"><iframe src="https://player.vimeo.com/video/1240041699?badge=0&amp;autopause=0&amp;player_id=0&amp;app_id=58479" frameborder="0" allow="autoplay; fullscreen; picture-in-picture; clipboard-write; encrypted-media; web-share" referrerpolicy="strict-origin-when-cross-origin" style="position:absolute;top:0;left:0;width:100%;height:100%;" title="Brush Cutting and Ministry"></iframe></div><script src="https://player.vimeo.com/api/player.js"></script>
 
