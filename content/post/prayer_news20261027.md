@@ -22,7 +22,7 @@ The following video that I made for Men's Breakfast has scenes from my last Job 
 
 _S_ and I had worked together in the oppressive heat of late summer, brush cutting along the county and prefectural roads of Kumamoto. We also worked together clearing vegitation between young trees as the weather cooled and tree-planting season began in late fall. 
 
-He and his wife, _A_, were a great team, and I really enjoyed working with them. Among all of our hard-working team members - about eight in all - those two would ask me the most questions, seeming to want to understand why I, an American becoming a missionary back to Japan, would do such a thing. What was my motivation?
+He and his wife, _A_, were a great team, and I really enjoyed working with them. Among our hard-working team members - about eight in all - those two would ask me the most questions, seeming to want to understand why I, an American becoming a missionary back to Japan, would do such a thing. What was my motivation?
 
 One day, as we _S_ and I were working together, planting cedars on a steep hillside, he stopped and looked at me for a moment and asked in Japanese, "Have you ever wanted to quit?"
 
@@ -34,23 +34,24 @@ I paused and thought for a bit. _Had_ I ever wanted to quit? In an instant, my m
 
 In the sixth chapter of John, many who were following Jesus suddenly quit following him after he said some words they found confusing, upsetting, unsettling, and distasteful. In the aftermath of this, Jesus was left there standing with his disciples: 
 
-_After this many of his disciples turned back and no longer walked with him. So Jesus said to the twelve, “Do you want to go away as well?” Simon Peter answered him, “Lord, to whom shall we go? You have the words of eternal life, and we have believed, and have come to know, that iyou are the jHoly One of God.”_ ~ John 6:67-69 | ESV
+_After this many of his disciples turned back and no longer walked with him. So Jesus said to the twelve, “Do you want to go away as well?” Simon Peter answered him, “Lord, to whom shall we go? You have the words of eternal life, and we have believed, and have come to know, that you are the Holy One of God.”_ ~ John 6:67-69 | ESV
 
 I shared my story with _S_ by telling him of my question and the answer the Lord gave me through Peter's words. No, I never wanted to quit, even though I had an important question to settle, because I was reminded by the words written in the Bible and on my heart: Only Jesus has the words of eternal life.
 
-Opperating a brush cutter did not preach the gospel to my friend _S_, but I do believe it played a part in his desire to ask me good questions, as did using a seedling bag, a pick mattock, a measuring rod, and the other tools I used as I worked. In working hard alongside him, he became open to learning about what I think and believe and why.
+Operating a brush cutter did not preach the gospel to my friend _S_, but I do believe it played a part in his desire to ask me good questions, as did using a seedling bag, a pick mattock, a measuring rod, and the other tools I used as I worked in the woods and mountains. By working hard alongside him, he became open to learning about what I think and believe and why.
 
 When we return to Japan - hopefully sometime in the spring or early summer of 2027 - I intend to keep using tools like my brush cutter to bless my neighbors. At least twice a year we have a major neighborhood cleanup day in our rural hamlet. All the men (that are still able) pull out their brush cutters and two-cycle fuel and work their way around the nearby roads and fields, cutting down the vines and grasses that would take over if not for human intervention. It may not seem like much, but just a little hard work of knocking the weeds down makes for better soil in the hearts of our neighbors and sometimes puts me in a place where I can, like I was able to with _S_, give a reason for the hope that is in me.
 
 **Praise:**
 
-- for our safe travels and reliable vehicle
+- that the ministry to Japan is at nearly 90%
+- for the safe travels we have had in our reliable vehicle
 - for the churches here in the Treasure Valley
-- for the opportunities we have had in will have to share about the ministry to Japan
+- for the opportunities we have had to share about the ministry to Japan
 
 **Please pray:**
 
-- for continued growth in prayer and financial support
+- for continued growth in prayer support and financial support
 - for Nate's time with C going through the Story of Hope
 - for Nate's parents as the younger Strattons prepare to return to Japan in 2027
 - for our preparation, that we would complete all the necessary tasks
