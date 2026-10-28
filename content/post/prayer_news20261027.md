@@ -45,7 +45,7 @@ When we return to Japan - hopefully sometime in the spring or early summer of 20
 
 **Praise:**
 
-- that the ministry to Japan is at nearly 90%
+- that funding for the ministry to Japan with ABWE is at nearly 90%
 - for the safe travels we have had in our reliable vehicle
 - for the churches here in the Treasure Valley
 - for the opportunities we have had to share about the ministry to Japan
