@@ -7,7 +7,7 @@ draft: false
 ---
  _"...but in your hearts honor Christ the Lord as holy, always being prepared to make a defense to anyone who asks you for a reason for the hope that is in you; yet do it with gentleness and respect...."_ ~ 1 Peter 3:15 | ESV 
 
-Azusa, the boys, and I have the privilege of joining this year's [Treasure Valley Missions Conference](https://bnnidaho.com/) held in the Boise area from October 24 through November 8. We are just a few days in and have already met many incredible brothers and sisters in Christ at the churches that we have visited thus far. We have also been really blessed by our very warm and gracious hosts. Just today we enjoyed good pie and fellowship today at our hosts' church.
+Azusa, the boys, and I have the privilege of joining this year's [Treasure Valley Missions Conference](https://bnnidaho.com/) held in the Boise area from October 24 through November 8. We are just a few days in and have already met many incredible brothers and sisters in Christ at the churches that we have visited thus far. We have also been really blessed by our very warm and gracious hosts. Just today we enjoyed good pie and fellowship at our hosts' church.
 
 ### A Tool for Ministry
 
