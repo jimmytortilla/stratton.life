@@ -8,6 +8,7 @@ draft: false
  _"...but in your hearts honor Christ the Lord as holy, always being prepared to make a defense to anyone who asks you for a reason for the hope that is in you; yet do it with gentleness and respect...."_ ~ 1 Peter 3:15 | ESV 
 
 Azusa, the boys, and I have the privilege of joining this year's [Treasure Valley Missions Conference](https://bnnidaho.com/) held in the Boise area from October 24 through November 8. We are just a few days in and have already met many incredible brothers and sisters in Christ at the churches that we have visited thus far. We have also been really blessed by our very warm and gracious hosts. Just today we enjoyed good pie and fellowship today at our hosts' church.
+
 ### A Tool for Ministry
 
 One of the events during this conference is a men's breakfast. The missionary men were requested to share a tool with the participants. It is an opportunity for each of us to present a physical tool that we can use for ministry in the country to which we have been called. 
@@ -20,7 +21,7 @@ The following video that I made for Men's Breakfast has scenes from my last Job 
 
 ### 'Have you ever wanted to quit'
 
-_S_ and I had worked together in the oppressive heat of late summer, brush cutting along the county and prefectural roads of Kumamoto. We also worked together clearing vegitation between young trees as the weather cooled and tree-planting season began in late fall. 
+_S_ and I had worked together in the oppressive heat of late summer, brush cutting along the county and prefectural roads of Kumamoto. We also worked together clearing vegetation between young trees as the weather cooled and tree-planting season began in late fall. 
 
 He and his wife, _A_, were a great team, and I really enjoyed working with them. Among our hard-working team members - about eight in all - those two would ask me the most questions, seeming to want to understand why I, an American becoming a missionary back to Japan, would do such a thing. What was my motivation?
 
