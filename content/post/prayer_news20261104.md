@@ -40,7 +40,7 @@ Here are some examples of the approximately sixty _one anothers_ (in the ESV):
 * _Above all, keep loving **one another** earnestly, since love covers a multitude of sins. Show hospitality to **one another** without grumbling. As each has received a gift, use it to serve **one another**, as good stewards of God’s varied grace...._ ~ <small>I Peter 4:8-10</small>
 * _And this is his commandment, that we believe in the name of his Son Jesus Christ and love **one another**, just as he has commanded us._ ~ <small>I John 3:23</small>
 
-Every time I read this list or see the a _one another_ verse in the Bible, I need to be asking myself, "Am I intentionally seeking to practice this?" As a disciple of Christ, I am not only empowered by God to practice loving my fellow brothers and sisters (i.e. the church) but I must also realize that I am free to do so, no longer enslaved to sin. I _get_ to practice the one anothers.
+Every time I read this list or see a verse with a _one another_ in the Bible, I need to be asking myself, "Am I intentionally seeking to practice this?" As a disciple of Christ, I am not only empowered by God to practice loving my fellow brothers and sisters (i.e. the church) but I must also realize that I am free to do so, no longer enslaved to sin. I _get_ to practice the one anothers.
 
 
 
